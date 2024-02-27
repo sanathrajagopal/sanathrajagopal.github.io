@@ -1,1 +1,0 @@
-# sanathrajagopal.github.io
